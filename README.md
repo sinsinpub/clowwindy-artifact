@@ -1,1 +1,1 @@
-Removed according to regulations.
+To remember a excellent contribution, farewell.
